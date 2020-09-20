@@ -1,2 +1,1 @@
-readme-edits# hello-world
-Always carry your hussle on a higher planes of integrity.
+Am Jillo Guyo, a Kenyan who embraces internet and technology as one of the greatest human invention of our times and always endeavour my smallest contribution towards this noble cause. My dream is to be a cloud architect. Thank you
